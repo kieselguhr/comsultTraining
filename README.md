@@ -1,2 +1,0 @@
-# comsultTraining
-LEL TOH
